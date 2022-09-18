@@ -2,160 +2,193 @@
 
 Radio List https://radio.sycer.network/radio
 
-- '【Nicokara】 Only Tears／Kasamura Toota on vocal'
-- a whisker away？
-- Aceplla kono subarashii sekai ni shukufuku o ed
-- AIきりたんで『コネクト ⧸ ClariS』カバー
-- ALI PROJECT - 人生美味礼讃 - Jinsei Bimi Raisan
-- aori - ぱられループ を歌ってみた (Jeku Remix)
-- Bruno Mars - The Lazy Song (Official Music Video)
-- C18H27NO3
-- Colette Olive
-- CyberAngel (Remix)
-- dark cat - BUBBLE TEA (feat. juu & cinders)
-- DECO＊27 - シンデレラ feat. 初音ミク (Giga First Night Remix)
-- DECO＊27 - 乙女解剖 feat. 初音ミク (TeddyLoid Alllies Remix)
-- DECO＊27 - 乙女解剖 feat. 初音ミク
-- Demon slayer OP 1 - Iambaby Remix
-- Double Take (AWAKE REMIX)
-- EGOIST『咲かせや咲かせ』Original Movie（劇場中編アニメ－ション『甲鉄城のカバネリ 海門決戦』主題歌）
-- Everything Goes On - Porter Robinson (Official Music Video) ｜ Star Guardian 2022
-- Free download Beat Loops
-- Fukashigi no carte - Nansuke Remix
-- Hairtie.wav
-- heiakim - potato
-- HIMEHINA『ヴァンパイア』Cover
-- Iambaby - Beleve In You \[Rezero ED.2 Remix DEMO 03\]
-- Iambaby - ID03
-- Iambaby - taken
-- Iambaby - Want You
-- Just made an alarm for you
-- Kawaii Sun!!!!!!
-- Kaze Ni Fukarete (Kaguya-sama： Love Is War Ed s.2)\[Iambaby Remix\]
-- Koi no Uta「恋のうた」Yunomi (feat. Tsukasa Tsukuyomi)(Iambaby Remix)
-- K⧸DA - THE BADDEST full covered by 春茶
-- La Vanille【Original Song】
-- Limelite
-- LoFi Beat Final
-- Lovesick.wav
-- MARENOL
-- marrzaan x ryoko❀miza - Sayoko (Hip-Hop Mix)\[OFF VOCAL IN DESCRIPTION\]
-- Paranoia 【鹿乃】
-- PengChristmas
-- PIKASONIC & Tatsunoshin - Euphoria (feat.Tsugumi Nagahara) \[Music Video\]
-- PIKASONIC & Tatsunoshin - Lockdown (ft.NEONA) \[Official Video\]
-- Pokémon Title Theme \[Chill-Hop\]
-- Pokémon Title Theme \[Lofi\]
-- Porter Robinson & Madeon - Shelter (Official Audio)
-- PPAP（Pen-Pineapple-Apple-Pen Official）ペンパイナッポーアッポーペン／PIKOTARO(ピコ太郎)
-- PSY - GANGNAM STYLE(강남스타일) M⧸V
-- Rascal Does Not Dream of Bunny Girl Senpai ED (Fukashigi no Carte) \[Lofi⧸Chill-hop Remix\].wav
-- Remix & Nightcore II - Mine ( Adhi X Hanael)
-- Reol - 'No title' Seaside Remix
-- Re：Zero - Stay Alive (The Chainsmokers 'Closer' Remix)
-- Rick Astley - Never Gonna Give You Up (Official Music Video)
-- Sakura Reflection (P＊Light Slayer Remix)
-- SEISO 『Doja Cat ＂Say So＂ parody cover』
-- Snail's House - Christmas of a Wandering Ghost
-- Spice feat. Nyamai (dj-Jo Remix)
-- Spice⧸Irony⧸Alone (EO⧸Marshmello⧸Anime Mashup)
-- the peggies - センチメートル (Centimeter) \[Lo-Fi Remix\].wav
-- Tokyo - Leat'eq (Lyrics)
-- Touhou Project - エンドレスてゐマパーク(Endless Tewi-ma Park)
-- \[Koutetsujou no Kabaneri ED\] Ninelie (REDSHiFT X Vesuvia Remix)
-- \[official\]トルコ行進曲 - オワタ＼(^o^)／ feat.オワタP(AIきりたん)
-- \[official\]パラジクロロベンゼン - SOFT MIX - feat.オワタP(AIきりたん)
-- \[official\]パラジクロロベンゼン×アンチクロロベンゼン 合わせてみた feat.オワタP(AIきりたん)
-- \[official\]リビルド／再構築 feat.オワタP(Synthesizer V AI 弦巻マキ)
-- 《殺戮的天使》ED - Pray 千菅春香 (日+羅+中)
-- 『Bad Apple』英文版❤病娇萝莉
-- 『囍』哭着笑来着...【深夜慎入，头皮发麻】
-- 『广寒谣』仙子可是来自月宫？灵动又仙气的国风电子
-- 『探窗』绝美戏腔演唱“一句一叹戏里有情痴”
-- 『镜中渊』“梦里水月镜花”空灵翻唱
-- 【#LiLYPSE\_双星歌劇】反響∽波形Synchronicity - LiLYPSE【LIVE ver. from 反実仮想ARCHETYPE】
-- 【3DMV⧸歌ってみた】んっあっあっ。-SLAVE.V-V-R⧸covered by LiLYPSE ＃10
-- 【3DMV⧸歌ってみた】琥珀の身体-HIMEHINA⧸covered by LiLYPSE ＃09【踊ってみた】
-- 【Ado】 うっせぇわ Piano Ver.
-- 【Ado】 レコード大賞スペシャルメドレー（踊〜ギラギラ〜うっせぇわ）
-- 【Ado】Tot Musica（ウタ from ONE PIECE FILM RED）
-- 【Ado】うっせぇわ（Giga Remix）
-- 【Ado】ウタカタララバイ（ウタ from ONE PIECE FILM RED）
-- 【Ado】ギラギラ
-- 【Ado】世界のつづき（ウタ from ONE PIECE FILM RED）
-- 【Ado】逆光（ウタ from ONE PIECE FILM RED）
-- 【Ado】風のゆくえ（ウタ from ONE PIECE FILM RED）
-- 【AIきりたん】シャルル【NEUTRINOカバー】
-- 【AIきりたんカバー】only my railgun ⧸ fripside
-- 【BOFXVII】Kindness【食パン7枚切り】
-- 【Cover】MAFIA ⧸ マフィア - Ouro Kronii
-- 【Cover】キャットラビング - 香椎モイミ feat. 可不 by ﾕｷﾑﾗﾁｬﾝ！
-- 【Cover】キュートなカノジョ - syudou by ﾕｷﾑﾗﾁｬﾝ！
-- 【Cover】ヴァンパイア - DECO＊27 feat.初音ミク by ﾕｷﾑﾗﾁｬﾝ！
-- 【MV】Monodrate ⧸ Feryquitous feat. 藍月なくる
-- 【MV】Three piece! ⧸ La prière
-- 【MV】シル・ヴ・プレジデント／P丸様。【大統領になったらね！】
-- 【MV】ファンサ／mona(CV：夏川椎菜)【HoneyWorks】
-- 【Origin-4】金魚蒔絵の水飛沫 - LiLYPSE【Official MV】
-- 【Original Song MV】MEMORIA ｜ ZONA 🐳
-- 【中文字幕】【ボカロ8人】Bad ∞ End ∞ Night\_x264
-- 【中文字幕】【ボカロ8人】Crazy ∞ nighT【オリジナル】\_batch\_x264
-- 【中文字幕】【ボカロ8人】EveR ∞ LastinG ∞ NighT 【オリジナル】\_x264
-- 【中文字幕】【ボカロ8人】Twilight ∞ nighT 【オリジナル】\_batch\_x264
-- [【亞北ネル】喋喋不休地吵死啦！【ガルナ@オワタP】](mailto:【亞北ネル】喋喋不休地吵死啦！【ガルナ@オワタP】.m4a "mailto:【亞北ネル】喋喋不休地吵死啦！【ガルナ@オワタP】.m4a")
-- 【兰音原创】倾杯问 （听到高潮段绝对不会后悔哦）
-- 【初音ミク】我与朱丽叶【doriko】
-- 【初音ミク】最近死男友很冷淡喔【みつあくま】 (Necro-Fantasista)
-- 【初音ミク】罗密欧与辛德瑞拉【doriko】（野生字幕Ver.）
-- 【初音ミク・GUMI】狐狸的婚嫁
-- 【小春六花】喋喋不休地吵死了！【オワタP】
-- 【弱音ハク・亞北ネル】快逃！是现实【オワタP】
-- 【病娇少女之歌】 作茧自缚
-- 【病娇少女之歌】 吸 呼 呼
-- 【病娇少女之歌】 恶 魔
-- 【病娇少女之歌】 花
-- 【病娇少女之歌】 要有礼貌哦
-- 【病娇少女之歌】什么事都做不好
-- 【病娇少女之歌】存在着哦
-- 【病娇少女之歌】存活千年
-- 【病娇少女之歌】旧日支配者们的颂歌
-- 【病娇少女之歌】未确认少女进行时
-- 【病娇少女之歌】请抱紧我
-- 【病娇少女之歌】食虫植物
-- 【翻唱】CH4NGE - Giga ⧸ 町田千麻(Cover)
-- 【翻唱】神っぽいな【Maria Marionette ⧸ NIJISANJI EN】
-- 【鏡音リン•レン】trick and treat【中文字幕】
-- 【鏡音リン・レン】秘蜜〜黑色的誓言〜【ひとしずくP】【传说曲补档】
-- あの世行きのバスに乗ってさらば。- Farewell on that bus ( Piano ) ｜ Thai Version. ｜ Cover by BEARISS ｜ Original by ツユ
-- きゃりーぱみゅぱみゅ - PONPONPON , Kyary Pamyu Pamyu - PONPONPON
-- ずっと真夜中でいいのに。『暗く黒く』MV（ZUTOMAYO - DARKEN）
-- そんなゆめをみたの-lonely dreaming girl
-- たった1つの想い (Tatta Hitotsu no Omoi) - KOKIA ⧸⧸ covered by 凪原涼菜
-- ちきゅう大爆発
-- アイデンティティ - Identity ｜ Original by Kanaria ｜ Thai lyrics by snooppink ｜ Cover by BEARISS & Aela
-- キャットラビング ⧸白上フブキ(cover)
-- キャットラビング(Cat Loving)⧸東 雪蓮 (cover)
-- ゼロの使い魔2期OP「I SAY YES」
-- ド屑 ⧸ covered by 藍月なくる
-- ビンクスの酒
-- ピノキオピー - おばけのウケねらい feat. 初音ミク ⧸ Ghosts Play to the Audience
-- ピノキオピー - すろぉもぉしょん feat. 初音ミク ⧸ SLoWMoTIoN
-- ファンサ／しぐれうい【#しぐれうい3D ver.】
-- フルコーラスRTA 1min. - 小春六花\[吉田夜世\] \[sm40772455\]
-- マクロスΔ「いけないボーダーライン」歌詞つき
-- マーシャル・マキシマイザー ⧸ covered by 藍月なくる
-- ライオン (Lion) - May'n 中島愛 ⧸⧸ covered by 凪原涼菜×皇美緒奈
-- ラグトレイン ⧸ 稲葉曇 (YQXP Remix) ft. 歌爱ユキ ⧸ Lag Train
-- ラヴィット／P丸様。【歌ってみた】
-- ロクデナシ「ただ声一つ」Rokudenashi - One Voice ( แค่เสียงหนึ่ง ) Covered by Aisha［ Thai Version ］
-- ヴァンパイア／P丸様。【歌ってみた】
-- 中字 初音《罗密欧与仙杜瑞拉》酒红公主服【双语字幕】
-- 初音ミクlivetune feat「Redial」Music Video
-- 感電 ⧸ 米津玄師 full covered by 春茶
-- 暁の車 (Akatsuki no Kuruma) - FictionJunction YUUKA ⧸⧸ covered by 凪原涼菜
-- 有華「Partner」Thai Version - Covered by Aisha
-- 私の薔薇を喰みなさい
-- 空想メソロギヰ (Kuusou Mesorogii) - 妖精帝國 ⧸⧸ covered by 凪原涼菜
-- 胡桃单曲《嗷》
-- 胡桃单曲《嗷》Remix
-- 見えない翼
+'【Nicokara】 Only Tears／Kasamura Toota on vocal.mp4'
+1st Single 【 REDHEART 】
+a whisker away？
+Aceplla kono subarashii sekai ni shukufuku o ed
+AIきりたんで『コネクト ⧸ ClariS』カバー
+AIきりたんによるSovietMarch（ソビエトマーチ 日本語吹替版）
+ALI PROJECT - 人生美味礼讃 - Jinsei Bimi Raisan
+aori - ぱられループ を歌ってみた (Jeku Remix)
+Asterisk - World's End, Girl's Rondo (Remix)
+Bruno Mars - The Lazy Song (Official Music Video)
+C18H27NO3
+Colette Olive
+CyberAngel (Remix)
+dark cat - BUBBLE TEA (feat. juu & cinders)
+DECO＊27 - シンデレラ feat. 初音ミク (Giga First Night Remix)
+DECO＊27 - 乙女解剖 feat. 初音ミク (TeddyLoid Alllies Remix)
+DECO＊27 - 乙女解剖 feat. 初音ミク
+Demon slayer OP 1 - Iambaby Remix
+Double Take (AWAKE REMIX)
+DUSTCELL - Mad Hatter
+EGOIST『咲かせや咲かせ』Original Movie（劇場中編アニメ－ション『甲鉄城のカバネリ 海門決戦』主題歌）
+Everything Goes On - Porter Robinson (Official Music Video) ｜ Star Guardian 2022
+Free download Beat Loops
+Fukashigi no carte - Nansuke Remix
+Hairtie.wav
+heiakim - potato
+HIMEHINA『ヴァンパイア』Cover
+Iambaby - Beleve In You [Rezero ED.2 Remix DEMO 03]
+Iambaby - ID03
+Iambaby - taken
+Iambaby - Want You
+IOSYS - Marisa Stole The Precious Thing (Full ⧸ 4k)
+Just made an alarm for you
+Kawaii Sun!!!!!!
+Kaze Ni Fukarete (Kaguya-sama： Love Is War Ed s.2)[Iambaby Remix]
+Koi no Uta「恋のうた」Yunomi (feat. Tsukasa Tsukuyomi)(Iambaby Remix)
+K⧸DA - THE BADDEST  full covered by 春茶
+La Vanille【Original Song】
+Limelite
+LoFi Beat Final
+Lovesick.wav
+MARENOL
+marrzaan x ryoko❀miza - Sayoko (Hip-Hop Mix)[OFF VOCAL IN DESCRIPTION]
+MASA WORKS DESIGN ft.初音ミク&GUMI - 狐の嫁入り
+Paranoia 【鹿乃】
+PengChristmas
+PIKASONIC & Tatsunoshin - Euphoria (feat.Tsugumi Nagahara) [Music Video]
+PIKASONIC & Tatsunoshin - Lockdown (ft.NEONA) [Official Video]
+Pokémon Title Theme [Chill-Hop]
+Pokémon Title Theme [Lofi]
+Porter Robinson & Madeon - Shelter (Official Audio)
+PPAP（Pen-Pineapple-Apple-Pen Official）ペンパイナッポーアッポーペン／PIKOTARO(ピコ太郎)
+PSY - GANGNAM STYLE(강남스타일) M⧸V
+Rascal Does Not Dream of Bunny Girl Senpai ED (Fukashigi no Carte) [Lofi⧸Chill-hop Remix].wav
+Remix & Nightcore II - Mine ( Adhi X Hanael)
+Reol - 'No title' Seaside Remix
+Re：Zero - Stay Alive (The Chainsmokers 'Closer' Remix)
+Rick Astley - Never Gonna Give You Up (Official Music Video)
+Sakura Reflection (P＊Light Slayer Remix)
+SEISO 『Doja Cat ＂Say So＂ parody cover』
+Snail's House - Christmas of a Wandering Ghost
+Spice feat. Nyamai (dj-Jo Remix)
+Spice⧸Irony⧸Alone (EO⧸Marshmello⧸Anime Mashup)
+the peggies - センチメートル (Centimeter) [Lo-Fi Remix].wav
+Tokyo - Leat'eq (Lyrics)
+Touhou Project - エンドレスてゐマパーク(Endless Tewi-ma Park)
+TVアニメ「どろろ」　オープニング・テーマ 女王蜂「火炎」OPノンクレジット映像
+TVアニメ「進撃の巨人」The Final SeasonノンクレジットOP【神聖かまってちゃん「僕の戦争」】
+WE ARE JAPANESE GOBLIN [MMD]
+YOASOBI - ハルジオン・Halzion (Lone Alpha Remix) ♪
+[Koutetsujou no Kabaneri ED] Ninelie (REDSHiFT X Vesuvia Remix)
+[official]トルコ行進曲 - オワタ＼(^o^)／ feat.オワタP(AIきりたん)
+[official]パラジクロロベンゼン - SOFT MIX - feat.オワタP(AIきりたん)
+[official]パラジクロロベンゼン×アンチクロロベンゼン 合わせてみた feat.オワタP(AIきりたん)
+[official]リビルド／再構築 feat.オワタP(Synthesizer V AI 弦巻マキ)
+▽▲TRiNITY▲▽『XOXO』Music Video【2022⧸10⧸5発売「Δ(DELTA)」収録曲】
+《殺戮的天使》ED  - Pray  千菅春香 (日+羅+中)
+『Bad Apple』英文版❤病娇萝莉
+『ソ連軍歌メドレー⧸Soviet Armed Forces Medley』feat.東北きりたん⧸Tohoku Kiritan【日本語吹き替え版】
+『ド屑』歌ってみた (Cover) ⧸ dtto.
+『囍』哭着笑来着...【深夜慎入，头皮发麻】
+『广寒谣』仙子可是来自月宫？灵动又仙气的国风电子
+『探窗』绝美戏腔演唱“一句一叹戏里有情痴”
+『镜中渊』“梦里水月镜花”空灵翻唱
+【#LiLYPSE_双星歌劇】反響∽波形Synchronicity - LiLYPSE【LIVE ver. from 反実仮想ARCHETYPE】
+【3DMV⧸歌ってみた】んっあっあっ。-SLAVE.V-V-R⧸covered by LiLYPSE ＃10
+【3DMV⧸歌ってみた】琥珀の身体-HIMEHINA⧸covered by LiLYPSE ＃09【踊ってみた】
+【Ado】 うっせぇわ Piano Ver.
+【Ado】 レコード大賞スペシャルメドレー（踊〜ギラギラ〜うっせぇわ）
+【Ado】Tot Musica（ウタ from ONE PIECE FILM RED）
+【Ado】うっせぇわ（Giga Remix）
+【Ado】ウタカタララバイ（ウタ from ONE PIECE FILM RED）
+【Ado】ギラギラ
+【Ado】世界のつづき（ウタ from ONE PIECE FILM RED）
+【Ado】逆光（ウタ from ONE PIECE FILM RED）
+【Ado】風のゆくえ（ウタ from ONE PIECE FILM RED）
+【AIきりたん】Säkkijärven polkka【日本語吹き替版】
+【AIきりたん】シャルル【NEUTRINOカバー】
+【AIきりたん】炉心融解【NEUTRINOカバー】
+【AIきりたんカバー】only my railgun ⧸ fripside
+【BOFXVII】Kindness【食パン7枚切り】
+【Cover】MAFIA ⧸ マフィア - Ouro Kronii
+【Cover】キャットラビング - 香椎モイミ feat. 可不 by ﾕｷﾑﾗﾁｬﾝ！
+【Cover】キュートなカノジョ - syudou by ﾕｷﾑﾗﾁｬﾝ！
+【Cover】ヴァンパイア - DECO＊27 feat.初音ミク by ﾕｷﾑﾗﾁｬﾝ！
+【HD】 六兆年と一夜物語 【IAオリジナル曲・PV付】- KEMU VOXX
+【IA】 アウターサイエンス 【オリジナルMV】
+【MV】Monodrate ⧸ Feryquitous feat. 藍月なくる
+【MV】Three piece! ⧸ La prière
+【MV】シル・ヴ・プレジデント／P丸様。【大統領になったらね！】
+【MV】ファンサ／mona(CV：夏川椎菜)【HoneyWorks】
+【Origin-4】金魚蒔絵の水飛沫 - LiLYPSE【Official MV】
+【Original Song MV】MEMORIA ｜ ZONA 🐳
+【ドキッときめいて】I♡⧸ リリぴ 【オリジナル曲】
+【ママに内緒で】ショウコ隠滅、少女純潔 ⧸ みつあくま fealty. 初音ミク【プロセカNEXT】 (Virgin birth)
+【中文字幕】【ボカロ8人】Bad ∞ End ∞ Night_x264
+【中文字幕】【ボカロ8人】Crazy ∞ nighT【オリジナル】_batch_x264
+【中文字幕】【ボカロ8人】EveR ∞ LastinG ∞ NighT 【オリジナル】_x264
+【中文字幕】【ボカロ8人】Twilight ∞ nighT 【オリジナル】_batch_x264
+【亞北ネル】喋喋不休地吵死啦！【ガルナ@オワタP】
+【公式】撥条少女時計 feat.初音ミク【オリジナル曲】
+【兰音原创】倾杯问 （听到高潮段绝对不会后悔哦）
+【初音ミク&GUMI】積み木の人形 YQXP Remix Ver.
+【初音ミク(40㍍)】 からくりピエロ Karakuri Pierrot【オリジナル】
+【初音ミク】我与朱丽叶【doriko】
+【初音ミク】最近死男友很冷淡喔【みつあくま】 (Necro-Fantasista)
+【初音ミク】罗密欧与辛德瑞拉【doriko】（野生字幕Ver.）
+【初音ミク・GUMI】狐狸的婚嫁
+【小春六花】喋喋不休地吵死了！【オワタP】
+【弱音ハク・亞北ネル】快逃！是现实【オワタP】
+【東方ヴォーカルPV】悪戯センセーション（Vo：あやぽんず＊⧸あよ）【森羅万象公式】
+【東方ヴォーカルPV】無意識レクイエム （Vo：あよ）※閲覧注意【森羅万象公式】
+【歌ってみた】白日 - King Gnu ⧸Covered by 花鋏キョウ
+【病娇少女之歌】 作茧自缚
+【病娇少女之歌】 吸 呼 呼
+【病娇少女之歌】 恶 魔
+【病娇少女之歌】 花
+【病娇少女之歌】 要有礼貌哦
+【病娇少女之歌】什么事都做不好
+【病娇少女之歌】存在着哦
+【病娇少女之歌】存活千年
+【病娇少女之歌】旧日支配者们的颂歌
+【病娇少女之歌】未确认少女进行时
+【病娇少女之歌】请抱紧我
+【病娇少女之歌】食虫植物
+【翻唱】CH4NGE - Giga ⧸ 町田千麻(Cover)
+【翻唱】神っぽいな【Maria Marionette ⧸ NIJISANJI EN】
+【脈アリ？】最近カレ死が冷たいの ⧸ みつあくま feat. 初音ミク【プロセカNEXT】 (Necro-Fantasista)
+【鏡音リン•レン】trick and treat【中文字幕】
+【鏡音リン・レン】秘蜜〜黑色的誓言〜【ひとしずくP】【传说曲补档】
+【陰キャの逆襲】イナくなっちゃえ大作戦 ⧸ みつあくま feast. 初音ミク（DOMESTIC Revenger）
+あの世行きのバスに乗ってさらば。- Farewell on that bus ( Piano ) ｜ Thai Version. ｜ Cover by BEARISS ｜ Original by ツユ
+うたかたアリア(Ephemeral Melody) ⧸ みつあくまと初音ミク【プロセカNEXT】
+きゃりーぱみゅぱみゅ - PONPONPON , Kyary Pamyu Pamyu - PONPONPON
+ずっと真夜中でいいのに。『暗く黒く』MV（ZUTOMAYO - DARKEN）
+そんなゆめをみたの-lonely dreaming girl
+たった1つの想い (Tatta Hitotsu no Omoi) - KOKIA ⧸⧸ covered by 凪原涼菜
+ちきゅう大爆発
+アイデンティティ - Identity ｜ Original by Kanaria ｜ Thai lyrics by snooppink  ｜ Cover by BEARISS & Aela
+ウォルピスカーター MV 『泥中に咲く』
+キャットラビング ⧸白上フブキ(cover)
+キャットラビング(Cat Loving)⧸東 雪蓮 (cover)
+ゼロの使い魔2期OP「I SAY YES」
+ド屑 ⧸ covered by 藍月なくる
+ビンクスの酒
+ピノキオピー - おばけのウケねらい feat. 初音ミク ⧸ Ghosts Play to the Audience
+ピノキオピー - すろぉもぉしょん feat. 初音ミク ⧸ SLoWMoTIoN
+ファンサ／しぐれうい【#しぐれうい3D ver.】
+フルコーラスRTA 1min. - 小春六花[吉田夜世] [sm40772455]
+マクロスΔ「いけないボーダーライン」歌詞つき
+マーシャル・マキシマイザー ⧸ covered by 藍月なくる
+ライオン (Lion) - May'n 中島愛 ⧸⧸ covered by 凪原涼菜×皇美緒奈
+ラグトレイン ⧸ 稲葉曇 (YQXP Remix) ft. 歌爱ユキ ⧸ Lag Train
+ラヴィット／P丸様。【歌ってみた】
+ラヴラグ feat. 初音ミク (colorized by △○□×) ⧸ ＂Love Rag＂ ft. Hatsune Miku
+ロクデナシ「ただ声一つ」Rokudenashi - One Voice ( แค่เสียงหนึ่ง ) Covered by Aisha［ Thai Version ］
+ヴァンパイア／P丸様。【歌ってみた】
+中字 初音《罗密欧与仙杜瑞拉》酒红公主服【双语字幕】
+初音ミクlivetune feat「Redial」Music Video
+和楽器バンド ⧸ 千本桜
+幼女戦記 ED ⧸ Youjo Senki Ending 「FULL」 - ＂Los! Los! Los!＂ -  Tanya Degurechaff (悠木 碧)
+感電 ⧸ 米津玄師 full covered by 春茶
+暁の車 (Akatsuki no Kuruma) - FictionJunction YUUKA ⧸⧸ covered by 凪原涼菜
+有華「Partner」Thai Version - Covered by Aisha
+私の薔薇を喰みなさい
+空想メソロギヰ (Kuusou Mesorogii) - 妖精帝國 ⧸⧸ covered by 凪原涼菜
+胡桃单曲《嗷》
+胡桃单曲《嗷》Remix
+見えない翼
+＂終わカレ＂はブロックで ⧸ みつあくま fear. 初音ミク【プロセカNEXT】(My ex Blocker)
